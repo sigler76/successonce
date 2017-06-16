@@ -1,0 +1,2 @@
+# successonce
+Most of us make mistakes and we can not let our life be based on them. The same way we have the responsibility to be better and help others. I can safely say that it is not a Scam and all those who follow the instructions correctly have positive results. Is 4 Percent Group a Scam? NO http://www.successonce.com Do not hesitate a second to take massive action in your life. Frank Sigler And as Tony Robbins says “In life you need either inspiration or desperation.” – Tony Robbins
